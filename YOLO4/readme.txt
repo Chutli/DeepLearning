@@ -1,0 +1,1 @@
+Trọng số mô hình được lưu tại: https://drive.google.com/file/d/1OjghnIx4oUNLmjGiBzjRVPidGm-alO-D/view?usp=sharing
